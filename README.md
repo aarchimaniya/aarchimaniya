@@ -1,3 +1,4 @@
+![image](https://github.com/aarchimaniya/aarchimaniya/assets/128701780/6ae2427b-bc3c-4ecb-b331-1313bc71c0c4)
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/AARCHI_MANIYA) 
