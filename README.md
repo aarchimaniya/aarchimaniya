@@ -1,4 +1,5 @@
-![Group 7](https://github.com/user-attachments/assets/d6d95582-169e-46c0-b3c8-cf647e65a5c2)
+![Group 8](https://github.com/user-attachments/assets/27cc4c3f-c6a1-4546-86d8-d1e616338a32)
+
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/AARCHI_MANIYA) 
